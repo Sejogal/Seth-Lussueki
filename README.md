@@ -1,0 +1,2 @@
+# Seth-Lussueki
+Sobre mim.
